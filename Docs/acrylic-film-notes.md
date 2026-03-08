@@ -1,0 +1,1 @@
+Notes on acrylic thickness and mirror film.
